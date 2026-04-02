@@ -1,1 +1,0 @@
-# Seishi_paper
